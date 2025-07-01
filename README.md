@@ -1,4 +1,5 @@
-![Web Developer](https://ibb.co.com/d5P7wfp)
+![Blue, Green, and White Modern Tech Web Developer LinkedIn Banner](https://github.com/user-attachments/assets/b8ef2044-00eb-4780-beea-5fb0fd802bed)
+
 ### 👋, I'm Md Shahinur Islam
 #### Web Developer
 
